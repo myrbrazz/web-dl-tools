@@ -5,5 +5,5 @@ AMZN,Desny,HMAX,Netflix,Gplay,JIO,Sunnxt,And meny more.
 
 Trusted Seller💯
 More proofs and buy contact me.
-Telegram :@powerstar43
+Telegram : https://t.me/powerstar43
 
